@@ -17,3 +17,8 @@
 
 ![](https://komarev.com/ghpvc/?username=flairforthedramatic&style=plastic&color=ffc750&label=HGSS)
 </p >
+<details>
+  <summary></summary>
+
+  <sub>[coy♡](https://github.com/dares4swears)  [benji](https://github.com/TheRecordTeam)  [kai](https://github.com/Flayedrocker)  [gold](https://github.com/dexholder)  [raine](https://github.com/frostbittenkisses)  [zombie](https://github.com/zombieluvsbrains)<sub><br>
+</details>
